@@ -7,3 +7,5 @@ ___
  
 __Job Objective:__ Extremely motivated for career change goal. Seeking to leverage my skills and abilities in an entry-level frontend development position.
  
+__Skills:__ Highly organized and detail-oriented, able to work under the pressure, very good at establishing rapport with people from diverse backgrounds. Learning hard.
+ 
