@@ -11,3 +11,4 @@ __Skills:__ Highly organized and detail-oriented, able to work under the pressur
  
 __Education:__ BA in Journalism (cum laude), related coursework in Business English
  
+__English level:__ Upper-Intermediate
