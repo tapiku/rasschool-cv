@@ -9,3 +9,5 @@ __Job Objective:__ Extremely motivated for career change goal. Seeking to levera
  
 __Skills:__ Highly organized and detail-oriented, able to work under the pressure, very good at establishing rapport with people from diverse backgrounds. Learning hard.
  
+__Education:__ BA in Journalism (cum laude), related coursework in Business English
+ 
